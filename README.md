@@ -1,5 +1,6 @@
    <div align="center">
 
+𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int `ㅅ´
 ####
 [𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/yVSkfNya)　　◡◡　　[𝙋rnspage](https://en.pronouns.page/@C0lorfool)
 
